@@ -2,7 +2,7 @@
 - 👀 I’m interested in Exploring New Things
 - 🌱 I’m currently learning Ai & Ml
 - 💞️ I’m looking to collaborate on Machine Learning Project
-- 📫 To reach me on instagram @namanbarewar
+- 📫 To reach me on barewarnaman@gmail.com
 - 😄 Pronouns: NamoB
 - ⚡ Fun fact: AI Enthusiast
 
